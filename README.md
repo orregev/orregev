@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @orregev
+- 👀 I’m interested in Space
+- 🌱 I’m currently learning Computers
+- 💞️ I’m looking to collaborate on a cup of Coffee
+- 📫 How to reach me orregev@endor.com
